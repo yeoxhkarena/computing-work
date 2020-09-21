@@ -24,6 +24,6 @@ creatures crawling in a frenzy at the small drain-like thing on the floor next t
 
 Your most annoying brother is finally out of the bathroom and comes knocking on your door. You open the door, he's probably not the most concerned but at least bothers to ask
 what is going on with his little sister. Frightened and slightly irritated, you say, "ants" and cross your arms. Because you blame your brother for your current state. He goes 
-to check it out and though a little expected because he's your brother, he says, "just leave it alone. We're leaving tomorrow anyway." 
+to check it out and though a little expected because he's your brother, he says, "Just leave it alone. We're leaving tomorrow anyway." 
 
 This simply wasn't the end of your experience in this bug-infested villa. Bug-infested.
