@@ -26,4 +26,4 @@ Your most annoying brother is finally out of the bathroom and comes knocking on 
 what is going on with his little sister. Frightened and slightly irritated, you say, "ants" and cross your arms. Because you blame your brother for your current state. He goes 
 to check it out and though a little expected because he's your brother, he says, "Just leave it alone. We're leaving tomorrow anyway." 
 
-This simply wasn't the end of your experience in this bug-infested villa. Bug-infested.
+And this was only a part of your experience in the bug-infested villa. Bug-infested.
